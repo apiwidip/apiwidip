@@ -1,0 +1,1 @@
+👋 Saya seorang siswa di Universitas Dian Nuswantoro. ✨ Saya menyukai pemrograman terutama HTML karena sangat luar biasa yang dapat saya gunakan untuk membangun dan mengembangkan sebuah hal keren, misalnya web portofolio.
